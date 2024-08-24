@@ -1,5 +1,4 @@
 # untitled36
-![Colorful Freelancer YouTube Thumbnail (26)](https://github.com/user-attachments/assets/62211a4e-c122-4771-bb9c-cc9b6be5c07c)
 
 
 
